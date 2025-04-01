@@ -6,7 +6,7 @@
 ## 官方網站  
 [www.younit.tw](https://www.younit.tw)  
 
-## 社交媒體  
+## 社群媒體  
 - [Facebook](https://www.facebook.com/younit.tw)  
 - [Instagram](https://www.instagram.com/younit.tw)  
 - [Threads](https://threads.net/@younit.tw)  
